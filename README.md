@@ -1,0 +1,1 @@
+# autodealer-mail-images
